@@ -1,1 +1,1 @@
-# discord_thame_chu_7
+# discord_theme_chu_7
